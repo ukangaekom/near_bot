@@ -50,6 +50,6 @@ Hurray💥! Stay tune for more development😎!
 
 ## Contact
 For collaboration, feedback and support, kindly contact the developer of this project(Ekomabasi Ukanga) on the following platforms:
-1. [Linkedin](https://)
-2. [Twitter](https://)
+1. [Linkedin](https://www.linkedin.com/in/ekomabasi-ukanga-aaa72a225/)
+2. [Twitter](https://x.com/EkomUkanga)
 
